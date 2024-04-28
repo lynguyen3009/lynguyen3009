@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: lilynguyen0326@gmail.com
 - 😄 Pronouns: Ms
 - ⚡ Fun fact: I love traveling
-- 
+  
